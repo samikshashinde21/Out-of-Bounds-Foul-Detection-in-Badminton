@@ -1,0 +1,1 @@
+D:/CV_CP/Badminton/frames_1/0033.jpg
